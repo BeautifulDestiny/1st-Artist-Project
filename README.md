@@ -1,1 +1,1 @@
-!st Artist Project
+1st Artist Project
